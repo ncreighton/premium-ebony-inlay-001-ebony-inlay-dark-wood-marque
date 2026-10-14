@@ -1,0 +1,2 @@
+# premium-ebony-inlay-001-ebony-inlay-dark-wood-marque
+Struggling to make your marquetry pieces pop? Ebony inlay is notoriously tricky—brittle, expensive, and easy to ruin—but when done right, it creates the most dramatic, high-contrast art you've ever seen.  This workshop solves the specific challenges of working with ebony and dark woods: preventing chipping, achieving crisp lines, and finishing with
